@@ -1,1 +1,0 @@
-# business-inteligent-work-submission
